@@ -485,7 +485,7 @@ funny material, mix it into your writing. Don't worry about pleasing all of your
 find it funny.
 
 Fear of writing can freeze most writers in front of a blank screen or blank piece of paper. To get
-confidence, Zinsser suggests that we right about subjects what interest us and what we care about.
+confidence, Zinsser suggests that we write about subjects what interest us and what we care about.
 
 To get interested about subjects, live an interesting life.
 
